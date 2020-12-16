@@ -14,22 +14,22 @@
 
 
 ## EDUCACIÓN ACADÉMICA.
-**2016-2020 Bachillerato realizado en el IES Seritium.**  
+2016-2020 Bachillerato realizado en el IES Seritium. 
 
-**2012-2016 Educación secundaria obligatoria realizada en el IES Seritium.**  
+2012-2016 Educación secundaria obligatoria realizada en el IES Seritium.  
 
 
 ## EXPERIENCIA LABORAL.
-**Ninguna.**
+Ninguna.
 
 ## HABILIDADES.
-**Responsabilidad, puntualidad y seriedad.**  
+Responsabilidad, puntualidad y seriedad.  
 
-**Actitud positiva.**  
+Actitud positiva.  
 
-**Capacidad para tener alto rendimiento bajo situaciones de presión.**  
+Capacidad para tener alto rendimiento bajo situaciones de presión.  
 
-**Buena expresión escrita y oral.**
+Buena expresión escrita y oral.
 
 ## IDIOMAS.
 **Español** → Nivel alto.  
@@ -37,6 +37,6 @@
 **Francés** → Nivel medio/alto.
 
 ## INFORMACIÓN ADICIONAL.
-**Flexibilidad de horario.**  
+Flexibilidad de horario.  
 
-**Actitud positiva.**
+Actitud positiva.
