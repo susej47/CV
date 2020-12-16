@@ -32,9 +32,9 @@
 **Buena expresión escrita y oral.**
 
 ## IDIOMAS.
-**Español → Nivel alto.**  
+**Español** → Nivel alto.  
 
-**Francés → Nivel medio/alto.**
+**Francés** → Nivel medio/alto.
 
 ## INFORMACIÓN ADICIONAL.
 **Flexibilidad de horario.**  
