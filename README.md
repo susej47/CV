@@ -1,7 +1,7 @@
 # CV
 ## DATOS PERSONALES.
-**Nombre y apellidos:** Jesús Jiménez Montes de Oca.
-**Lugar de nacimiento:** Jerez de la Frontera, Cádiz.
+**Nombre y apellidos:** Jesús Jiménez Montes de Oca.//
+**Lugar de nacimiento:** Jerez de la Frontera, Cádiz.//
 **Fecha de nacimiento:** 28/09/2000.
 **Domicilio:** Barriada la Granja, Plaza Ronda, Bloque 8, 3ºB, Jerez de la Frontera 11405.
 **Teléfono:** XXX XXX XXX.
